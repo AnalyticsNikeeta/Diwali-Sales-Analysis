@@ -62,6 +62,6 @@ This analysis provides clear **business insights** for targeted marketing and sa
 ## 👩‍💻 Author
 **Nikeeta Sharma**  
 📧 [nikeetasharma9@gmail.com]  
-🌐 []  
+🌐 [https://www.linkedin.com/in/nikeeta-sharma-7b9293324]  
 
 ---
